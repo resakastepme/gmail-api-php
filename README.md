@@ -19,11 +19,11 @@ For the full tutorials please watch the youtube playlist below:
 
 These code are actually from sir [Anthony Brunson](https://www.youtube.com/@AnthonyBrunson)!<br>
 Please do subscribe to them and say thanks:<br>
--[Subscribe to Anthony Brunson](https://www.youtube.com/@AnthonyBrunson)
+- [Subscribe to Anthony Brunson](https://www.youtube.com/@AnthonyBrunson)
 
 ## FIND ME
 
 Visit my Instagram:<br>
--[My Instagram](https://www.instagram.com/resaka.xmp)<br>
+- [My Instagram](https://www.instagram.com/resaka.xmp)<br>
 DM me for any interest project you offer!<br>
 With gladly i will listen to you
